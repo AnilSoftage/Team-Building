@@ -1,0 +1,1 @@
+Welcome to our transformative team-building retreat! Over the next few days, we embark on a journey to enhance collaboration skills, foster trust, and cultivate a unified team spirit. Through engaging workshops, interactive activities, and shared experiences, we aim to create lasting connections and empower each other for greater success.
